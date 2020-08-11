@@ -1,2 +1,2 @@
-Basically.I am kind of a big deal. I am a code freak
+I am a code freak. Basically. I am kind of a big deal
 
